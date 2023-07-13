@@ -2,7 +2,7 @@
 - 👀 I’m interested in MACHINE LEARNING AND DEEP LEAARNING
 - 🌱 I’m currently learning ML MATHEMATICAL APPROACH
 - 💞️ I’m looking to collaborate on ANY PROJECT
-- 📫 How to reach me JUST LEAVE A MAIL ON 9622586157SHEKHAR@GMAIL.COM
+- 📫 How to reach me JUST LEAVE A MAIL ON shekharhimanshu0008@gmail.com
 -  
 
 <!---
